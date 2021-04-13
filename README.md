@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Caokela
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in photography
+- 🌱 I’m currently learning Take pictures
+- 💞️ I’m looking to collaborate on Photography talent
 - 📫 How to reach me 905097859@qq.com
 
 <!---
